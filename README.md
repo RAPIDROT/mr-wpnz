@@ -1,7 +1,7 @@
 # ────୨ৎ────
 
 
-hi! im WPNZ (weapons) . previously snuffy, fully recovered.
+hi! im travis . previously snuffy, 
 he/her
 
  
@@ -13,11 +13,10 @@ he/her
 
 **★ we are a polyfragmented osdd1a system**
 
-< tino, vox, sam, quinn, alice 3
+< camryn, devin, rusty and skeet 3
 #
 # ────୨ৎ────
 
 follow these and we should be good!
 
-![](https://github.com/MR-WPNZ/mr-wpnz/blob/main/GxZJKuDagAArlKg.png?raw=true)
 
